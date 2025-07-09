@@ -1,6 +1,6 @@
 ## Hi there 
 
-I'm Valentina, an enthusiastic learner currently sudying a masters programme in epidemiology. I am interested in multiple fiels, currently working in environmental epidemiology, disasters and adverse birth effects. Feel free to reach me at va.aguayo@uc.cl 
+I'm Valentina, an enthusiastic learner nowadays sudying a masters programme in epidemiology. I am interested in multiple fiels, currently working in environmental epidemiology, disasters and adverse birth effects. Feel free to reach me at va.aguayo@uc.cl 
 
 
 
